@@ -7,14 +7,18 @@
 
 <p align="left"> <a href="https://twitter.com/meyyarand" target="blank"><img src="https://img.shields.io/twitter/follow/meyyarand?logo=twitter&style=for-the-badge" alt="meyyarand" /></a> </p>
 
-- 🔭 I’m currently working on [I just An airdropper who is currently working in the Web3 ecosystem](https://discord.com/invite/Tce7bZRW)
+- 🔭 I’m currently working on [I just An airdropper who is currently working in the Web3 ecosystem](https://discord.com/invite/MVDuKRr7fY)
 
 - 📝 I regularly write articles on [https://medium.com/@meyyarand](https://medium.com/@meyyarand)
+
+- 💬 Ask me about **If you need help developing a project and helping you develop your community I am ready to be a moderator to help you and I have a lot of knowledge, contact me contact me @meee202 on Discord**
+
+- 📄 Know about my experiences [beta moderator sui aptospad moderator moderator imperium wars moderator Spacecy Wallet owner Clan Hunter ( https://discord.com/invite/MVDuKRr7fY)](beta moderator sui aptospad moderator moderator imperium wars moderator Spacecy Wallet owner Clan Hunter ( https://discord.com/invite/MVDuKRr7fY))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/meyyarand" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="meyyarand" height="30" width="40" /></a>
-<a href="https://discord.gg/meee202" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="meee202" height="30" width="40" /></a>
+<a href="https://discord.gg/https://discord.com/invite/MVDuKRr7fY" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="https://discord.com/invite/MVDuKRr7fY" height="30" width="40" /></a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
