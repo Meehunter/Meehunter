@@ -14,7 +14,7 @@
 - 💬 Ask me about **If you need help developing a project and helping you develop your community I am ready to be a moderator to help you and I have a lot of knowledge, contact me contact me @meee202 on Discord**
 
 
-- 📄 Know about my experiences [beta moderator sui aptospad moderator moderator imperium wars moderator Spacecy Wallet owner Clan Hunter ( https://discord.com/invite/MVDuKRr7fY)](beta moderator sui aptospad moderator moderator imperium wars moderator Spacecy Wallet owner Clan Hunter ( https://discord.com/invite/MVDuKRr7fY))
+- 📄 Know about my experiences [moderator beta sui aptospad moderator moderator imperium wars moderator Spacecy Wallet owner Clan Hunter ( https://discord.com/invite/MVDuKRr7fY)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
