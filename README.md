@@ -13,8 +13,6 @@
 
 - 💬 Ask me about **If you need help developing a project and helping you develop your community I am ready to be a moderator to help you and I have a lot of knowledge, contact me contact me @meee202 on Discord**
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=bayu1s&label=Profile%20views&color=129e00&style=plastic" alt="bayu1s" /> </p>
-<img align="right" alt="Coding" width="250" height="400" src="byu.jpg">
 
 - 📄 Know about my experiences [beta moderator sui aptospad moderator moderator imperium wars moderator Spacecy Wallet owner Clan Hunter ( https://discord.com/invite/MVDuKRr7fY)](beta moderator sui aptospad moderator moderator imperium wars moderator Spacecy Wallet owner Clan Hunter ( https://discord.com/invite/MVDuKRr7fY))
 
